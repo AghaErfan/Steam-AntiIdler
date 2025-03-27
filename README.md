@@ -1,5 +1,7 @@
 ![SteamAntiIdle](https://github.com/user-attachments/assets/8b425f66-e1de-4c7f-839a-b264420d8f4a)
 ----------------------------------------------------------------
+![Rec 0007](https://github.com/user-attachments/assets/67aa34b3-e1c5-42fb-8c4b-32a3b44ad3bb)
+
 
 **آموزش کار :**  
 **اول فایل های قرار داده شده رو دانلود از صفحه بالا دانلود کنید**
