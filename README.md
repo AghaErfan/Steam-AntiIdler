@@ -1,1 +1,1 @@
-![SteamAntiIdle](https://github.com/user-attachments/assets/cf3dbcf7-2600-4271-9c05-c61e72f0da98)
+![SteamAntiIdle](https://github.com/user-attachments/assets/8b425f66-e1de-4c7f-839a-b264420d8f4a)
